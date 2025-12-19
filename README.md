@@ -1,0 +1,1 @@
+kendimi geliştme yolunda adımlar
